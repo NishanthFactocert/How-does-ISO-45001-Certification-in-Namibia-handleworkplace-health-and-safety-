@@ -48,4 +48,4 @@ ISO 45001 Certification also helps organizations effectively manage their health
 **Conclusion**
 
 The attainment of ISO 45001 Certification in Namibia can assist a business in managing health and safety effectively. It might be advantageous for both the corporation and the employees. The organization should adopt ISO 45001 standards to maintain health and safety.
-<a href="https://factocert.com/namibia/iso-14001-certification-in-namibia/">Click here </a>
+<a href="https://factocert.com/namibia/iso-45001-certification-in-namibia/">Click here </a>
